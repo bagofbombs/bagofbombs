@@ -1,1 +1,1 @@
-HEYYY B) ... this page is a wip! u can come back once i figure out how 2 make this look nice.
+cant force u to read my rentry but id *heavily* advise u do if u wanna know basic stuff abt me ^_<
